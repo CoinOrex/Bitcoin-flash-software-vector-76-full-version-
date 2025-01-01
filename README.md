@@ -28,4 +28,4 @@
 
 [Telegram Admins](https://t.me/Hamishk0)
 
-[Telegram Admins](https://t.me/Alexcoinorex)
+[Telegram Admins](https://t.me/AlexByCoinOrex)
